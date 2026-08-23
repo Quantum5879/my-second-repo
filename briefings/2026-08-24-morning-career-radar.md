@@ -23,7 +23,7 @@
 - **Technical Specialist (Agri-Link) — IFAD** *(stretch — VERIFY experience)*
   - Rome (HQ) | Deadline: **25 Aug 2026** | Pay: IFAD P-3 international package | Co-terminus
   - Fit: **5/10** — agri markets / value chains is on-brand Track A, but needs **≥5 years** relevant professional experience; ABD PhD alone is usually insufficient.
-  - Apply: https://www.impactpool.org/jobs/1230445 · IFAD careers portal (search Agri-Link)
+  - Apply: https://www.impactpool.org/jobs/1230445 · https://www.ifad.org/en/careers (search Agri-Link)
   - Next action: **VERIFY** years-of-experience on IFAD portal; only submit if WB project + consulting can be honestly framed as 5+ years; otherwise skip and do not burn a weak file.
 
 ---
