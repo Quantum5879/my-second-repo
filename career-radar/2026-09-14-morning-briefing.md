@@ -70,7 +70,7 @@
 
 ### 👀 WATCH / SAVE
 
-- **ARS AgEcon interview (2025 cycle):** Mains result out; document upload window closed; **interview schedule still not notified** as of this scan. Monitor https://asrb.gov.in/ and Interview Schedule; call letters email-only (`soexam@asrb.gov.in` / 011-25846166 if missing ≤10 days before).  
+- **ARS AgEcon interview (2025 cycle):** Mains result out; document upload window closed; **interview schedule still not notified** as of this scan. Monitor https://asrb.gov.in/ and Interview Schedule; call letters email-only (`soexam@asrb.gov.in / 011-25846166 if missing ≤10 days before).  
 - **ARS/NET 2026 cycle:** Tentative notification **Aug 2026** still not clearly dropped; CBT **Nov 2026**, Mains **Mar 2027** — watch ASRB schedule PDF.  
 - **NABARD Grade A (AgEcon/Economics):** No live 2026 notification on https://www.nabard.org/careers-notices1.aspx?cid=672&id=26 — watch for Nov-pattern release.  
 - **RBI Grade B DEPR 2026:** Apply window closed **20 May 2026** — watch results/interview only (do not re-apply).  
